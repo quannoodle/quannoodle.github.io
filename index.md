@@ -7,11 +7,17 @@
 
 ![CreepShow](https://pic.rmb.bdstatic.com/bjh/b590bd31b1fab367246f9e51c3636507.jpeg)
 
-1. https://www.nunuyy1.org/dianying/8905.html
-2. https://www.nunuyy1.org/dianying/8903.html
-3. https://www.nunuyy1.org/dianying/44519.html
-4. https://www.nunuyy1.org/dianshiju/44859.html
-5. https://www.nunuyy1.org/dianshiju/85196.html
-6. https://www.nunuyy1.org/dianshiju/91277.html
+https://www.nunuyy1.org/dianying/8905.html
+https://www.nunuyy1.org/dianying/8903.html
+https://www.nunuyy1.org/dianying/44519.html
+https://www.nunuyy1.org/dianshiju/44859.html
+https://www.nunuyy1.org/dianshiju/85196.html
+https://www.nunuyy1.org/dianshiju/91277.html
 
+### 美国恐怖故事集 American Horror Stories
+
+![](https://pic.rmb.bdstatic.com/bjh/47b86c09b419d7199459a6d9f1c9a106.jpeg)
+
+https://www.nunuyy1.org/dianshiju/89696.html
+https://www.nunuyy1.org/dianshiju/105955.html
 
