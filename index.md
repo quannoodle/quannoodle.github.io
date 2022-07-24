@@ -24,4 +24,7 @@
 
 ### Others
 
-东北合伙人 (2022)  https://www.nunuyy1.org/dianying/105976.html
+* [东北合伙人 (2022)](https://www.nunuyy1.org/dianying/105976.html)
+* [侦探语录 (2020)](https://www.nunuyy1.org/dianshiju/76687.html)
+
+
