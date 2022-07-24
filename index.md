@@ -1,7 +1,5 @@
 
-## quan noodle github io
-
-* [碎片人生 Pieces of Her (2022)](https://www.nunuyy1.org/dianshiju/97741.html)
+# quan noodle github io
 
 ### CreepShow
 
@@ -24,7 +22,20 @@
 
 ### Others
 
-* [东北合伙人 (2022)](https://www.nunuyy1.org/dianying/105976.html)
+* [碎片人生 Pieces of Her (2022)](https://www.nunuyy1.org/dianshiju/97741.html)
+* [樱桃新滋味 Brand New Cherry Flavor (2021) ](https://www.nunuyy1.org/dianshiju/90422.html)
 * [侦探语录 (2020)](https://www.nunuyy1.org/dianshiju/76687.html)
-
+* [abcdefg](ABCDEFG)
+* [abcdefg](ABCDEFG)
+* [abcdefg](ABCDEFG)
+* [abcdefg](ABCDEFG)
+* [abcdefg](ABCDEFG)
+* [abcdefg](ABCDEFG)
+* [abcdefg](ABCDEFG)
+* [abcdefg](ABCDEFG)
+* [abcdefg](ABCDEFG)
+* [abcdefg](ABCDEFG)
+* [abcdefg](ABCDEFG)
+* [abcdefg](ABCDEFG)
+* [abcdefg](ABCDEFG)
 
