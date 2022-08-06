@@ -19,10 +19,13 @@
 * [https://www.nunuyy1.org/dianshiju/105955.html](https://www.nunuyy1.org/dianshiju/105955.html)
 * [https://www.nunuyy1.org/dianshiju/1365.html](https://www.nunuyy1.org/dianshiju/1365.html)
 
+### 碎片人生 
+[!Pieces](https://pic.rmb.bdstatic.com/bjh/71a7a9226040936fa71377defeb6f3b8.jpeg)
+* [碎片人生 Pieces of Her (2022)](https://www.nunuyy1.org/dianshiju/97741.html)
+
+
 ### Others
 
-* [碎片人生 Pieces of Her (2022)](https://www.nunuyy1.org/dianshiju/97741.html)
-* 
 * [樱桃新滋味 Brand New Cherry Flavor (2021) ](https://www.nunuyy1.org/dianshiju/90422.html)
 * [侦探语录 (2020)](https://www.nunuyy1.org/dianshiju/76687.html)
 * [零办法 Zero Effect (1998)](https://www.nunuyy2.org/dianying/106335.html)
