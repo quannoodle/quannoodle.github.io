@@ -22,13 +22,12 @@
 ### Others
 
 * [碎片人生 Pieces of Her (2022)](https://www.nunuyy1.org/dianshiju/97741.html)
+* 
 * [樱桃新滋味 Brand New Cherry Flavor (2021) ](https://www.nunuyy1.org/dianshiju/90422.html)
 * [侦探语录 (2020)](https://www.nunuyy1.org/dianshiju/76687.html)
 * [零办法 Zero Effect (1998)](https://www.nunuyy2.org/dianying/106335.html)
-* [周末惊魂 Mid-Century](https://www.nunuyy2.org/dianying/106651.html)
 * [致命点击 Clickbait (2021)](https://www.nunuyy2.org/dianshiju/90555.html)
 * [不要抬头 Don't Look Up (2021)](https://www.nunuyy2.org/dianying/94596.html)
-* [青年福尔摩斯 Sherlock: Case of Evil](https://www.nunuyy2.org/dianying/106776.html)
 * [为何中止 Why Stop Now (2012)](https://www.nunuyy2.org/dianying/95619.html)
 * []()
 * []()
