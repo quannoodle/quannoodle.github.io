@@ -20,7 +20,7 @@
 * [https://www.nunuyy1.org/dianshiju/1365.html](https://www.nunuyy1.org/dianshiju/1365.html)
 
 ### 碎片人生 
-[!Pieces](https://pic.rmb.bdstatic.com/bjh/71a7a9226040936fa71377defeb6f3b8.jpeg)
+![Pieces](https://pic.rmb.bdstatic.com/bjh/71a7a9226040936fa71377defeb6f3b8.jpeg)
 * [碎片人生 Pieces of Her (2022)](https://www.nunuyy1.org/dianshiju/97741.html)
 
 
@@ -39,7 +39,7 @@
 * 风骚律师Tangmala 第六季 Better Call Saul Season 6 (2022) youtube hires her.
 * [link](https://www.nunuyy2.org/dianshiju/99671.html)
 * [阿尔法战士 第一季](https://www.nunuyy2.org/dianshiju/16319.html)
-* []()
+* [Sphinx](https://www.nunuyy2.org/dianying/99075.html)
 * []()
 * []()
 * []()
