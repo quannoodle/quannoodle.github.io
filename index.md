@@ -37,7 +37,6 @@
 * [致命点击 Clickbait (2021)](https://www.nunuyy2.org/dianshiju/90555.html)
 * [不要抬头 Don't Look Up (2021)](https://www.nunuyy2.org/dianying/94596.html)
 * [为何中止 Why Stop Now (2012)](https://www.nunuyy2.org/dianying/95619.html)
-* [十二宫 Zodiac (2007)](https://www.nunuyy2.org/dianying/11554.html)
 * [大侦探福尔摩斯2](https://www.nunuyy2.org/dianying/7169.html)
 * [幽浮档案 UFO](https://www.nunuyy2.org/dianying/74166.html)
 ![saul](https://pic.rmb.bdstatic.com/bjh/140f4a5f0c48fe6351ba072ce2c336ec.jpeg)
@@ -54,3 +53,8 @@
 * []()
 * [小生当差 The Hard Way (1991)](https://www.nunuyy2.org/dianying/13836.html)
 * [火线正义](https://www.nunuyy2.org/dianying/107108.html)
+
+### Review
+
+* [十二宫 Zodiac (2007)](https://www.nunuyy2.org/dianying/11554.html)
+* 
