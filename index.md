@@ -25,7 +25,7 @@
 * [秘密总部 Secret Headquarters (2022)](https://www.nunuyy2.org/dianying/107675.html)
 * [蜘蛛侠：英雄无归](https://www.nunuyy2.org/dianying/94419.html)
 * [大内密探](https://www.nunuyy2.org/dianying/90980.html)
-* []()
+* [外星居民 第一季 Resident Alien Season 1](https://www.nunuyy2.org/dianshiju/81967.html)
 * []()
 
 
