@@ -23,6 +23,7 @@
                 var ctl = $(this);
                 setTimeout(function () {
                     $("#display_area").html(ctl.val());
+                    ctl.val(''); // clears myself.
                 }, 100);
             });
         });
